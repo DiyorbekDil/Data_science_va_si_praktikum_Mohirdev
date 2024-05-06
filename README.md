@@ -1,0 +1,1 @@
+# Data_science_va_si_praktikum_Mohirdev
